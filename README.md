@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @judo05 🥋
+- 👋 Hi, I’m @judo05 🧑‍🚀
 - 👀 I’m interested in coding 🖥️ and skateboarding 🛹
 - 🌱 I’m currently learning aws 🛜
 - 💞️ I’m looking to collaborate on YOU 🫵
